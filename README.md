@@ -1,6 +1,6 @@
 Sağlam Kumar Siteleri
 1. [Maxi](https://shorturl.at/osD5u)
-2. [Metropol] (https://shorturl.at/gqOGM)
+2. [Metropol](https://shorturl.at/gqOGM)
 3. Bets10
 4. Hepsibahis
 5. Vd casino
